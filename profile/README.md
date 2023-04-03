@@ -11,7 +11,7 @@
 
 - ⚡ Fun fact **We work hard to get things done!**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: daylight@pencoin.tk</h3>
 <p align="left">
 </p>
 
